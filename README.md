@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @Indilindi
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 hola soy indi lindi y me puedes decir indi :3
+- 👀 estoy interesada en basket y en ser tik toker mi user es indi._.lindi
+- 🌱 nose que decia jsjsjsjs
+- 💞️ estoy colaborando para que pare el maltrato animal y que todos amemos a quienes queramos
+- 📫 espero llegar a mi meta mi meta es ser alguien reconosida
 
-<!---
-Indilindi/Indilindi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Hola soy indi amo dibujar amo tener amigas y gente a cual apollar soy un poco
+Pequeña pero si soy inteligente si algun día te sientes mal hablame:3💖
